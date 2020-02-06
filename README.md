@@ -1,3 +1,3 @@
 # my-cv
 
-Click here --> bit.ly/christianelbert
+Click here --> http://bit.ly/christianelbert
